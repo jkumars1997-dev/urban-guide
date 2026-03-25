@@ -1,2 +1,0 @@
-# urban-guide
-jitendrak
